@@ -1,0 +1,1 @@
+﻿Rejt� Jen� (sz�letett Reich Jen�, �r�i �lnevei: P. Howard, Gibson Lavery) (Budapest, Erzs�betv�ros, 1905. m�rcius 29.[1] � Jevdakovo(wd), Kamenkai j�r�s, Voronyezsi Rejt� Jen� (sz�letett Reich Jen�, �r�i �lnevei: P. Howard, Gibson Lavery) (Budapest, Erzs�betv�ros, 1905. m�rcius 29.[1] � Jevdakovo(wd), Kamenkai j�r�s, Voronyezsi ter�let, Szovjetuni�, 1943
